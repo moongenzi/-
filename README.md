@@ -1,5 +1,5 @@
 # 문관호 개싫어
-![](http://www.garina.net/wp-content/themes/dt-chocolate/thumb.php?src=/wp-content/uploads/2013/07/DOG_ALBUM-1024x1024.jpg&w=350&h=350&zc=1)
+![]http://pds.joins.com/news/component/htmlphoto_mmdata/201603/04/htm_20160304142233678414.JPG)
 ***
 ---
 ---
